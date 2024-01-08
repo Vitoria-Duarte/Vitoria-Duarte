@@ -26,7 +26,7 @@ Estou sempre trabalhando em projetos interessantes para aplicar o que aprendo. D
 
 [LinkedIn](https://www.linkedin.com/in/vitoria-esteffany/)
 
-![GIF](https://th.bing.com/th/id/OIP.TZNK038q-A_ztGuR3t_s3wAAAA?rs=1&pid=ImgDetMain)
+![GIF](https://pa1.aminoapps.com/6050/e0e8fcb7950ad0fd900775fdde8e538ee00b88f8_hq.gif)
 
 
 
